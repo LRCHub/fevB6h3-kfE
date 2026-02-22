@@ -1,0 +1,94 @@
+# IRyS – Gravity
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+Falling,
+I've been down here before
+Almost like I'm back home
+Fade,
+slowly it all begins to fade
+I got no power left today
+I don't know, I don't know
+if things would ever change
+I think
+I'll just be stuck here anyway
+Those nights,
+when your energy is nowhere
+to be,
+Nowhere to be found
+Do you see the light?
+Or does it
+feel like abyss, oh,
+it's bottomless
+I'm tryna figure out
+How to stay afloat
+in this world and all
+of its gravity
+When everyday the pull is
+grabbing me
+And it's easy thinking
+"Nobody
+here's understanding me"
+Maybe I'm not alone
+Maybe I'm not alone
+Aim, somewhere along,
+I lost my aim
+thoughtlessly counting up
+my days
+I don't know, I don't know
+it's really tough to say
+I'll probably be stuck here
+anyway
+Those nights,
+when your energy is
+to nowhere to be,
+Nowhere to be found
+Do you see the light?
+Or does it
+Feel like abyss, oh,
+it's bottomless
+I'm tryna figure out
+How to stay afloat
+in this world and all
+of its gravity
+When everyday the pull is
+grabbing me
+And it's easy thinking
+"Nobody
+here's understanding me"
+Maybe I'm not alone
+Maybe I'm not alone
+And I know I'm
+Not alone, not alone
+All these faces
+with the same frustrations
+Not alone, not alone
+Part of me, part of you,
+we're not alone
+Bet somebody's out there,
+just like me
+Feeling all the same things
+I don't know what I should do
+At least, though,
+you're like this too
+I've found a bit of comfort
+Ah Ahh
+How to stay afloat
+in this world and all
+of its gravity
+When everyday the pull is
+grabbing me
+And it's easy thinking
+"Nobody
+here's understanding me"
+Maybe I'm not alone
+Maybe I'm not alone
+And I know I'm
+Not alone, not alone
+All these faces
+with the same frustrations
+Not alone, not alone
+Part of me, part of you,
+we're not alone
+```
